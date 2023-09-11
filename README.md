@@ -1,3 +1,3 @@
 # Lucas VALQUENART
 
-I am Lucas Valquenart an exchange student from France :france:
+I am Lucas Valquenart an exchange student from France 🇫🇷
