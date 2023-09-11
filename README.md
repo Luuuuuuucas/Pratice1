@@ -7,4 +7,4 @@
 
 ## My hobbies
 * I love every activities around the sea as Surf :surfer:, Kitesurf :kite: and also swimming :swimmer:.
-* In fact, one of my biggest dreams is to have my own boat and go around the world :world:.
+* In fact, one of my biggest dreams is to have my own boat and go around the world :earth_africa:.
