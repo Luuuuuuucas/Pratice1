@@ -3,7 +3,7 @@
 ## Who I am ?
 * I am Lucas Valquenart an exchange student from [ESIEA](https://www.esiea.fr/en/) in France :croissant:.
 
-* I am 21 years old and I am studying Computer Science :computer:.
+* I am 21 years old and I study Computer Science :computer:.
 
 ## My hobbies
 * I love every activities around the sea as Surf :surfer:, Kitesurf :kite: and also swimming :swimmer:.
